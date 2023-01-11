@@ -1,2 +1,2 @@
-# wangquedexuanlu.github.io
+# wangquedexuanlupeteam.github.io
 官方网站
